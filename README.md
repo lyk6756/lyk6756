@@ -1,22 +1,14 @@
-### Hi there 👋
+### Greetings, my friend! 🙌
 
 <img align="right" src="https://github-readme-stats.vercel.app/api?username=lyk6756&show_icons=true&icon_color=CE1D2D&text_color=718096&bg_color=ffffff&hide_title=true" />
 
 🌏 🌎 🌍
 
-Greetings, my friend! 🙌
-
 🙋‍♂️ This is Yukun Li, Gen Y from Central China 🇨🇳
 
-* 🎓 Studying for my PhD at HIT 🛰️ in Harbin
+💆 Wish you touch a spark of inspiration 💡
 
-* 🏛️ Researching on FEM 💻
-
-* 🏠 My blog: https://lyk6756.github.io
-
-Wish you touch a spark of inspiration 💡
-
-May the force be with you 🙏
+🧙 May the force be with you 🙏
 
 🚁 ✈️ 🚀
 
