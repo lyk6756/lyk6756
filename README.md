@@ -14,6 +14,10 @@ Greetings, my friend! 🙌
 
 * 🏠 My blog: https://lyk6756.github.io
 
+Wish you touch a spark of inspiration 💡
+
+May the force be with you 🙏
+
 🚁 ✈️ 🚀
 
 <!--
